@@ -1,0 +1,2 @@
+# NerdResko-
+Viva seu melhor
